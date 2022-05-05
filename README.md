@@ -1,1 +1,1 @@
-# Olimpiada_Informatyczna-
+# Olimpiada_Informatyczna
